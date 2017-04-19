@@ -1,4 +1,4 @@
-###**Check Your Sources**
+### **Check Your Sources**
 
 Recently, I had the chance to meet with a local police officer on the campus of Virginia Tech and discuss sex trafficking in the context of college campuses, and the general southwest Virginia region. Officer Babb sat across the conference table, stiff in his blue uniform and his badge reflecting light without even an oily fingerprint.
 
